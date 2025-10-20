@@ -1,1 +1,1 @@
-# Internship-ELEVATE-LABS
+# Internship:ELEVATE-LABS
